@@ -9,6 +9,8 @@ Answer: Green
 
 ## Questions
 1. What is your favorite color?
-Answer:
+Answer: Hmm... Blue.
 2. Where is your favorite place you've ever visited?
-Answer:
+Answer: I would have to say Paris, although Florence, Italy was a close second!
+3. What is one place you haven't been that you would like to go?
+Answer:  Japan.  There are lots of others, but Japan looms large on the list.
